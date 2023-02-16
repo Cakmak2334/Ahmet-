@@ -1,2 +1,0 @@
-# Ahmet-
-Dündar 
